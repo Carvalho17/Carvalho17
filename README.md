@@ -1,16 +1,15 @@
-### Hi there 👋
-
-<!--
-**Carvalho17/Carvalho17** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+oi  vcs
+eu gosto de fazer naqda 
+so estou fazendom isso pq a professora mandou
+ilove you Arianne   
+sou casado amo minha mulher
+a nick da minha sala e uma corna 
+eu amo 7 coisas 
+1 vasco
+2 futebol
+3 ela
+4 arianne
+5 matheus
+6 natan
+7 jose 
+e odeio o mingau
